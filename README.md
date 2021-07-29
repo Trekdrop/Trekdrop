@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Trekdrop
 - 👀 I’m interested in nothing but coffee
-- 🌱 I’m currently learning to fly
+- 🌱 I’m currently learning how to eat trekdrop without trekking it
 - 💞️ I’m looking to collaborate on rebuilding the holy Roman Empire
 - 📫 How to reach me, please don't
 
